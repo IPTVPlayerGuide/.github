@@ -59,6 +59,10 @@ One of the most popular [**IPTV players**](https://sites.google.com/view/17-best
 - No content included
 - Some premium features require upgrade
 
+[**▶️ Watch Full IPTV Player Tutorial on YouTube**](https://www.youtube.com/watch?v=EACnD4l_YXg)
+
+[**💻 Visit our GitHub for the latest IPTV guides, reviews, and updates.**](https://github.com/Best-IPTV-for-USA)
+
 ---
 
 # 2. TiviMate IPTV Player
